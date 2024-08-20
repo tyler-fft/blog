@@ -1,3 +1,7 @@
+---
+title: Resume tips
+---
+
 ### 1 People love modesty, but they do not hire it.
 
 ### 2 Make a strong impression with a single page
